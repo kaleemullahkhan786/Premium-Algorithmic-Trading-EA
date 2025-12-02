@@ -72,9 +72,7 @@ Results indicate strong return-to-risk balance and stability across changing mar
 For collaboration, business inquiries, or custom EA development:
 
 * **Developer:** Kaleemullah Channa
-* **YouTube:** I M ROOT
-* **Fiverr Team:** RootX
-* **Social Media:** Available across major platforms
+* **Email:** kaleemullahkhan.contact@gmail.com
 
 ---
 
