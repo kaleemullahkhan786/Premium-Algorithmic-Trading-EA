@@ -71,7 +71,7 @@ Results indicate strong return-to-risk balance and stability across changing mar
 
 For collaboration, business inquiries, or custom EA development:
 
-* **Developer:** Kaleemullah Channa
+* **Developer:** Kaleemullah Khan
 * **Email:** kaleemullahkhan.contact@gmail.com
 
 ---
